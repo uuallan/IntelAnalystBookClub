@@ -11,5 +11,8 @@ This list of books is designed to help analysts refine their thinking and improv
 Jerry Bell (@Maliciouslink)
 Chris J (@rattis)
 Chris Sanders (@chrissanders88) 
-
+Mary Mulé (@mstellaluna)
+T𝚑𝚎 G𝚞𝚖𝚜𝚑𝚘𝚘 (@thegumshoo)
+The Grugq (@thegrugq)
+Nori Katagiri 片桐範之 (@norikatagiri1)
 For the suggestions, please feel free to add others
